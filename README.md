@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @bussinrob
+- 👀 I’m interested in music and fashion
+- 🌱 I’m currently learning alot
+- 💞️ I’m looking to collaborate on being great
+- 📫 How to reach me text me
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im bussin
